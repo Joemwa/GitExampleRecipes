@@ -2,7 +2,7 @@ I love this recipe, because it's so simple to make.
 
 Often times, I will skip the microwave stage, and just eat the brownie mix. There no egg in it, so it's not even a salmonella risk!
 
-How I found the recipe: I found it to be exotic and I discovered it by chance while visiting Alaska.
+How I found the recipe: I found it to be exotic and I discovered it by chance while visiting Alaska. It was in somebody's house.
 
 # What you need
 
